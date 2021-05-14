@@ -4,7 +4,7 @@ Sandeep Malakar (North Bengal): Volunteer / Information Provider
 
 Jayeeta Das (North Bengal): Volunteer / Information Provider
 
-Swapna Saha: Volunteer / Information Provider
+Swapna Saha (North 24 Parganas): Volunteer / Information Provider
 
 Semontee Deb (Jalpaiguri): Volunteer / Information Provider
 
