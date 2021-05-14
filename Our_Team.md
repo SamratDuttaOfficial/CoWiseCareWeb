@@ -1,4 +1,4 @@
-Samrat Dutta (Purba Bardhaman): Creator / Admin
+Samrat Dutta (Purba Bardhaman): Creator / Admin / Information Provider
 
 Sandeep Malakar (North Bengal): Volunteer / Information Provider
 
